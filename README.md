@@ -1,6 +1,6 @@
 # 👩🏻‍💻 Giovanni Celestino
 
-**`Desenvolvedor FullStack em Andamento💭`**
+**`Desenvolvedor FullStack em Andamento 💭`**
 
  Hello!!😎
  
