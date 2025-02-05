@@ -4,7 +4,7 @@
 
  Hello!!😎
  
- Me champo Giovanni Celestino, e atualmente atuo como Analista de Sistema, trabalhando com a ERP Protheus. Como também cuido de outras frentes dentro da TI. 
+ Me chamo Giovanni Celestino, e atualmente atuo como Analista de Sistema, trabalhando com a ERP Protheus. Como também cuido de outras frentes dentro da TI. 
  
  Sou formado em Engenharia de Software desde 2023, e não paro de buscar conhecimento, sempre realizando cursos e me aprimorando.
 
